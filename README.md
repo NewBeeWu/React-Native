@@ -1,3 +1,4 @@
 # React-Native  
 Good!    
-Good luck!
+Good luck!  
+Practice!
