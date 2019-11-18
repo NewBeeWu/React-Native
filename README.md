@@ -2,4 +2,5 @@
 Good!    
 Good luck!  
 Practice Practice Practice!  
-Fighting!
+Fighting!  
+Everyday!
