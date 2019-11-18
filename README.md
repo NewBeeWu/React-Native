@@ -3,4 +3,5 @@ Good!
 Good luck!  
 Practice Practice Practice!  
 Fighting!  
-Everyday!
+Everyday!  
+Come on!
