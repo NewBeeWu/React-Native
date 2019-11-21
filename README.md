@@ -1,5 +1,4 @@
-# React-Native  
-Good!    
+# React-Native      
 Good luck!  
 Practice Practice Practice!  
 Fighting!  
