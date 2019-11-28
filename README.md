@@ -3,4 +3,5 @@ Good luck!
 Practice Practice Practice!  
 Fighting!  
 Everyday!  
-Good!
+Good!  
+King of the future!
