@@ -4,4 +4,4 @@ Practice Practice Practice!
 Fighting!  
 Everyday!  
 Good!  
-King of the future!
+King of myself!
