@@ -4,4 +4,5 @@ Practice Practice Practice!
 Fighting!  
 Everyday!  
 Good!  
-King of myself!
+King of myself!  
+Day day up!
