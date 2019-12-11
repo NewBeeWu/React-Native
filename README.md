@@ -5,3 +5,4 @@ Fighting!
 Everyday!  
 Good! Good! Study!   
 King of myself!  
+One day!
