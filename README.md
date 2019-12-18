@@ -5,5 +5,5 @@ Fighting!
 Everyday!  
 Good! Good! Study!   
 King of myself!  
-One day!
+One day!  
 Go Go Go!
