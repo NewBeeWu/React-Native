@@ -1,8 +1,7 @@
 # React-Native      
 Good luck!  
 Practice Practice Practice!  
-Fighting!  
-Everyday!  
+Fighting!    
 Good! Good! Study!   
 King of myself!  
 One day!  
