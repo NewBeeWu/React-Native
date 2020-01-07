@@ -5,4 +5,5 @@ Fighting!
 Good! Good! Study!   
 King of myself!  
 One day!  Unicorn!  
-Day day up!
+Day day up!  
+Awesome Day!
