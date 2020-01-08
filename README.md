@@ -3,7 +3,5 @@ Good luck!
 Practice Practice Practice!  
 Fighting!    
 Good! Good! Study!   
-King of myself!  
-One day!  Unicorn!  
+King of myself!   
 Day day up!  
-Awesome Day!
