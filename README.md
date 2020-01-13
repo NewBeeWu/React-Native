@@ -5,3 +5,4 @@ Good! Good! Study!
 King of myself!   
 Day day up!    
 Amazing!
+Fighting!
