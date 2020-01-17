@@ -5,4 +5,5 @@ Good! Good! Study!
 King of myself!   
 Day day up!    
 Amazing!  
-Good1!
+Good1!  
+Better!
