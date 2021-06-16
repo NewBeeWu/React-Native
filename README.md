@@ -6,5 +6,5 @@ King of myself!
 Day day up!    
 Amazing!  
 Good!  
-Better!
+Better!  
 Best！
